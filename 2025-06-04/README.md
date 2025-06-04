@@ -30,7 +30,7 @@ Para 10 estudiantes.
 5. X
 6. X
 7. X
-8. X
+8. benjaminbuzeta10
 9. X
 10. X
 
